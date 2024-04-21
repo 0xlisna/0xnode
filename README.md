@@ -1,2 +1,2 @@
-# 0xnode..
+# 0xnode...
 # soon
